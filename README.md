@@ -1,10 +1,13 @@
 ---
+**The Glorious Uselessness Project(s)**
 
-#**Double the Uselessness – Team Name RADO**
+While normal students submit one serious project for evaluation, we — the visionaries of pointlessness — decided that wasn’t enough.
 
-**By:** Dan Mathews Vinu and  Roshan Joy
+So instead of one project, we are proudly submitting two gloriously useless projects, doubling the confusion, the sarcasm, and the “why does this even exist?” factor.
 
----
+Team Name:  RADO
+Members: Dan Mathews Vinu & Roshan Joy
+
 
 ## **📜 Introduction**
 
