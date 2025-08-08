@@ -1,8 +1,8 @@
 ---
 
-# **Double the Uselessness – Team Name RADO**
+#**Double the Uselessness – Team Name RADO**
 
-**By:** Dan Mathews Vinu & Roshan Joy
+**By:** Dan Mathews Vinu and  Roshan Joy
 
 ---
 
