@@ -1,4 +1,4 @@
-🧠 ScrollPoints!
+**🧠 ScrollPoints!**
 Because staring at a screen for hours should be rewarded, not just regretted.
 
 📜 About
